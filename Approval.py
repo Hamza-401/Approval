@@ -1,3 +1,5 @@
+my insta
+1-0-2-4-9-u-0-_-a-2-4-9
 moosa bhai
 10397#aarch64#1SMPPREEMPTThuJul31084006UTC2025510226android12931117096
 moosa bhai 2
